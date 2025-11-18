@@ -52,7 +52,7 @@ Pavan Poojary — NNM24IS149
 
 Pavan Kumar — NNM24IS160
 
-Pratwik Shetty — NNM24IS171
+Prathwik Shetty — NNM24IS171
 
 Department of Information Science and Engineering
 NMAM Institute of Technology, Nitte
